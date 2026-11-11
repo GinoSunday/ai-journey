@@ -1,0 +1,2 @@
+# ai-journey
+cazzi miei
